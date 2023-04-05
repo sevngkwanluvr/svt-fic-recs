@@ -4,4 +4,4 @@
 
 ♡ amazing characterization ! you really feel like you're right into vernon's dumb lovely head with him. i love their bond and the way it just keeps tugging them back to each other. it's only ever been them. it's only ever been seungkwan.
 
-**[!]** contains smut, a smaller mention of it after the line *That’s not what’s waiting for him at home.* and between verkwan right after entry #177
+**[!]** contains smut, a smaller mention of it after the line *That’s not what’s waiting for him at home.* and also right after entry #177
